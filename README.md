@@ -1,5 +1,10 @@
-## Hi there 👋
+## 黑料吃瓜六点半 👋
 
+“黑料六点半”是一个聚焦于娱乐圈和社会新闻的社交媒体平台，用户可以在这里获取最新的八卦、短剧和各种娱乐内容。该平台每日更新，涵盖明星私情、网红动态、校园秘闻等，旨在为用户提供丰富的娱乐信息和观看体验。
+
+http://38.47.227.130/down.html
+
+6点半吃瓜‌全网独一份的深扒猛料！ ‌‌不止明星秘史，更有商圈风云、奇闻异事的硬核爆料！
 <!--
 **hlliudianban/hlliudianban** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
